@@ -7,4 +7,4 @@
 
 
 Popcat Autopress
-![pic](https://cdn.pic.in.th/file/picinth/image5b81bdbeb9f341af.png](https://cdn.pic.in.th/file/picinth/image5a7454fe7821a713.png)https://cdn.pic.in.th/file/picinth/image5a7454fe7821a713.png)
+![pic](https://cdn.pic.in.th/file/picinth/image5a7454fe7821a713.png)
